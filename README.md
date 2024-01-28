@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @gloryyy17
+- 👀 I’m interested in Design and AI
+- 🌱 I’m currently learning Web design and development
+- 💞️ I’m looking to collaborate on design projects
+- 📫 How to reach me insta handle @glory_rj_
+- 😄 Pronouns:She/her
